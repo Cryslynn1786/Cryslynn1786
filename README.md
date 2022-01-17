@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cryslynn1786
-- 👀 I’m interested in ... learning to code and dice into this world
+- 👀 I’m interested in ... learning to code and dive into this world of development and learning more 
 - 🌱 I’m currently learning ... how I got hacked
 - 💞️ I’m looking to collaborate on ... whatever I'm doing,  whatever this is
 - 📫 How to reach me ... Crystalcarnley3@gmail.com
